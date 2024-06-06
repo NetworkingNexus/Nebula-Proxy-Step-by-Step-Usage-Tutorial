@@ -21,6 +21,30 @@ Nebula Proxy is a type of proxy server that is part of the Nebula network, which
 
 - **Privacy and Anonymity:** Individuals can use Nebula Proxy to enhance their online privacy and anonymity by routing their internet traffic through a secure proxy server.
 
+### Free Nebula Proxy List
+
+https://www.coremathlessons.xyz/
+
+https://nebulaproxy.dev/
+
+https://k12.studybetter.xyz/
+
+https://camerons-homework.glitch.me/
+
+https://scary-vestments-bee.cyclic.app/
+
+https://portal.itutoring.xyz/
+
+https://www.mathhog.xyz/
+
+https://schoolplanning.xyz/
+
+https://k12-fl.k12sciencemuseum.org/
+
+https://math4kids.xyz/
+
+https://nebulaproxy.io/
+
 Nebula Proxy is a versatile tool for ensuring secure and private communication over networks, offering a range of features suitable for various networking scenarios.
 
 To use Nebula Proxy for secure communication and networking, follow these general steps:
